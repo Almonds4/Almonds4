@@ -12,9 +12,9 @@
 
 - Currently on the look out to collaborate on **an upcoming Project**
 
-- Feel free to reach me at **kmapkco@gmail.com**
-
 - All current projects can be found on tab **Projects**
+
+- Feel free to reach me at **kmapkco@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
