@@ -10,7 +10,7 @@
 
 - I'm Currently attending **Carleton University**
 
-- Currently on the looked to collaborate on **an upcoming Project**
+- Currently on the look out to collaborate on **an upcoming Project**
 
 - Feel free to reach me at **kmapkco@gmail.com**
 
