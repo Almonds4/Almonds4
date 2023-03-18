@@ -14,7 +14,7 @@
 
 - Feel free to reach me at **kmapkco@gmail.com**
 
-- All current projects can be found **on-site, under Projects**
+- All current projects can be found on tab **Projects**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
